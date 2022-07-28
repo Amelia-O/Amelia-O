@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Amelia-O
 - 👀 I’m interested in learning and improving my knowledge
-- 🌱 I’m currently learning UI/UX
+- 🌱 I’m a Product Designer
 - 💞️ I’m looking to collaborate on different projects
 - 📫 You can reach me via mail okemiolufowobi@gmail.com
 
